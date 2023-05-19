@@ -1,5 +1,5 @@
 # Module1_Challenge
-Parastoo_ Module1_Challenge
+
 Be 100,000% Confident in Participating in Digital Economy with Coinbase
 
 ‘Awesome, gorgeous, speedy, secure, a couple can share it and use it together, congratulations to this feature, really helpful. I have been using it with enjoyment and I love the news, info, and guidance offered in the app.’
